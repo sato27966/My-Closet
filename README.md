@@ -1,1 +1,2 @@
-# My Closet Privacy Policy
+# My Closet 
+Privacy Policy
